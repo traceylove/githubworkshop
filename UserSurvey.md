@@ -2,7 +2,7 @@
 
 My favourite ice cream flavour is
 
-JD - Lemon Sorbet
+JD - Chocolate
 
 LC - 
 
