@@ -6,7 +6,7 @@ JD - Strawberry
 
 LC - 
 
-SDM -
+SDM - Avacado
 
 DH -
 
