@@ -4,7 +4,7 @@ My favourite ice cream flavour is
 
 JD - Strawberry
 
-LC - 
+LC - Orange & Fennel
 
 SDM -
 
